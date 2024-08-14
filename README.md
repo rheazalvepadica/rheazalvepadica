@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning how to cook for my little family.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ;Messenger will do.
-- 😄 Pronouns: She
+- 😄 Pronouns: She/Her
 - ⚡ Fun fact: I am a mom since 2022 but still learning how to be the best one.
 
 <!---
